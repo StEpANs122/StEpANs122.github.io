@@ -1,2 +1,1 @@
-# StEpANs122.github.io
-sd
+кто причитал тот гей
